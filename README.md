@@ -10,3 +10,4 @@ Con un alto grado de comunicación para trabajos en grupo, resiliencia, iniciati
 Contactame: 
 Email: mauriciomendez.dev@gmail.com 
 LinkedIn: https://www.linkedin.com/in/mauricio-mendez-256090279/
+ 
